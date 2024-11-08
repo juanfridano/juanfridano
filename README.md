@@ -31,7 +31,7 @@ I'm always open to discussing new projects, technologies, or collaboration oppor
 
 ## Fun Fact
 
-When I'm not coding, you can find me exploring the great outdoors, reading about the latest tech trends, or tinkering with new tools and technologies!
+When I'm not coding, you can find me hitting the heavy bag, trying to play the guitar or building Lego with my kid or tinkering with new tools and technologies!
 
 ---
 
